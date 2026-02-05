@@ -1,3 +1,5 @@
+# I Will Make the Voice of Praise Resound - துதியின் சத்தத்தை தொனிக்கச்செய்து
+
 This song of joyful praise and tested integrity echoes Psalm 26 — “Vindicate me, O Lord, for I have walked in my integrity… I will bless the Lord in the great congregation.” It is a declaration of longing for God’s temple, recounting His wonders, and walking in truth and grace. In the eternal day, this praise is perfected — we dwell in His house, beholding His glory forever (Psalm 27:4; Revelation 22:3–4).
 Closing Prayer for the Listener
 Lord Jesus Christ, whose glory fills the temple,
