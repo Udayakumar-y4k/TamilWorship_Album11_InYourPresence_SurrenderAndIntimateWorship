@@ -1,3 +1,5 @@
+# My Soul Thirsts for You - என் ஆத்துமா உம்மைத் தாகம் கொண்டுள்ளது
+
 This song of deep longing and satisfied thirst echoes Psalm 42 and 63 — the soul panting for God like a deer for water, finding fullness in His presence. It is intimate surrender — thirsting for the living God above all. In the eternal day, this thirst is perfectly quenched — we drink from the river of life, seeing Him face to face (Revelation 22:1–4; John 4:14).
 Closing Prayer for the Listener
 Lord Jesus Christ, living Water and our deepest joy,
