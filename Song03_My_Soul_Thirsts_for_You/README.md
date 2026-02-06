@@ -1,12 +1,12 @@
-# My Soul Thirsts for You - என் ஆத்துமா உம்மைத் தாகம் கொண்டுள்ளது
+# My Rock, My Lord - என் கன்மலையே என் கர்த்தாவே
 
-This song of deep longing and satisfied thirst echoes Psalm 42 and 63 — the soul panting for God like a deer for water, finding fullness in His presence. It is intimate surrender — thirsting for the living God above all. In the eternal day, this thirst is perfectly quenched — we drink from the river of life, seeing Him face to face (Revelation 22:1–4; John 4:14).
+This song of bold confidence and divine vindication echoes Psalm 28 — “To You, O Lord, I call; my rock, be not deaf to me… the Lord is my strength and my shield.” It is a cry for deliverance, praise in His presence, and trust in God’s justice against the wicked. In the eternal day, this confidence is perfected — the Lord hears, saves, and reigns as our Rock forever (Revelation 15:3–4).
 Closing Prayer for the Listener
-Lord Jesus Christ, living Water and our deepest joy,
-thank You for satisfying every thirst in Your presence.
-Let our souls pant for You alone.
-In the eternal day, let us drink forever from Your river of life.
-Come quickly, our Living God.
+Lord Jesus Christ, my Rock and my Shield,
+thank You for hearing my cry and being my strength.
+Anoint me, deliver Your people, judge the wicked.
+In the eternal day, let me stand in Your presence forever.
+Come quickly, my Rock and King.
 ஆமென். அல்லேலூயா!
 
 Tamil Christian Worship Songs – Freshly Anointed
