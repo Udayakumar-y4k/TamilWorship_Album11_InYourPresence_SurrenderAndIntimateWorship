@@ -14,7 +14,7 @@ All glory to Jesus Christ — the One who invites us into His presence forever!
 6. உம்முடைய பாதைகளை எனக்கு நீர் போதித்தருளும் – Teach Me Your Paths, O Lord  
 
 **Download**  
-- [Full Album in each folder] 
+- [Full Album - Check folders] 
 - [Full Lyrics Book PDF](./Album11_InYourPresence_FullLyricsBook_TamilEnglish.pdf)  
 - [Cover Image](./Album11_InYourPresence_Cover.jpg)
 
